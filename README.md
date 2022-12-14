@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Josephine42
 - 👀 I’m interested in Bitcoin trading
-- 🌱 I’m currently learning on NITDA scholarships platform.
+- 🌱 I’m currently learning on NITDA scholarship platform.
 - 💞️ I’m looking to collaborate on every area as it unfolds
 - 📫 How to reach me +2348026181322..
 
